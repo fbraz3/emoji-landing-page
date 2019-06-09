@@ -2,4 +2,4 @@
 
 
 
-Landing page for [http://👌👈.cf](http://👌👈.cf)
+Landing page for [https://👌👈.cf](https://👌👈.cf)
